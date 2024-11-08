@@ -1,6 +1,6 @@
 ^u^
 
-![image](https://github.com/kararrl/kararrl/assets/160807966/1ab03873-c53e-497e-a63c-7e26e6da66dc)
+![image](https://64.media.tumblr.com/38010f71eff93aa77be791a6a6c4d011/4c4a9a7b84eb7caa-a5/s400x600/1c15331a567765c7a9eb66da959ff88ac7ea5307.gifv)
 
 
 
@@ -13,7 +13,6 @@
 
 
 
-![image](https://github.com/kararrl/kararrl/assets/160807966/68348f79-57f6-4bf4-ab8e-58cc8fa3d88d)
 
 ![image](https://64.media.tumblr.com/c41a05b321df7fc653d70075f3fbda91/bb4d12a5cf53a80c-32/s250x400/2c0cb542261147d970cbb4ba0629373e25a7ad3b.gifv)
 
