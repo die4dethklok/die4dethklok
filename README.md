@@ -14,9 +14,6 @@
 
 
 
-![image](https://64.media.tumblr.com/c41a05b321df7fc653d70075f3fbda91/bb4d12a5cf53a80c-32/s250x400/2c0cb542261147d970cbb4ba0629373e25a7ad3b.gifv)
-
-
 
 
 ![image](https://64.media.tumblr.com/91bb5aecaa6611e392cda2c831f5898d/609c10468ba812db-c9/s640x960/c96d8af0649923f573c44565cfef888ba93a575d.gifv)
