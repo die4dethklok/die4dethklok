@@ -1,8 +1,12 @@
-^u^arcane divider from @the-voice-beckons-below on tumblr!
+
 
 
 
 ![image](https://64.media.tumblr.com/38010f71eff93aa77be791a6a6c4d011/4c4a9a7b84eb7caa-a5/s400x600/1c15331a567765c7a9eb66da959ff88ac7ea5307.gifv)
+
+
+^u^arcane divider from @the-voice-beckons-below on tumblr!
+
 
 ![image](https://64.media.tumblr.com/f8c85648587ede6bfeee5a80768ba509/24c78518d0096409-23/s2048x3072/729e5027b5190e2feb3392cf802bda010f7d4cf3.png)
 
