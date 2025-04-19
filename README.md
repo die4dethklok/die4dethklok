@@ -6,10 +6,10 @@
 
 
 
-^u^arcane divider from @the-voice-beckons-below on tumblr!
 
 
-![image](https://64.media.tumblr.com/f8c85648587ede6bfeee5a80768ba509/24c78518d0096409-23/s2048x3072/729e5027b5190e2feb3392cf802bda010f7d4cf3.png)
+
+![image](https://64.media.tumblr.com/c70f686f0b27b83aa11e98456a8d33c5/1a7499e8ed08e8b1-4a/s640x960/344e39f043da36d54408dd07168b4ef399f5639a.pnj)
 
 
 ![image](https://64.media.tumblr.com/1c91e96d34f2bde233023584a9a0b131/181ef86fd5fa91d2-df/s100x200/ef3ba58bcc09a5cf0d8434122e373b33b1c3aa5f.gifv)
